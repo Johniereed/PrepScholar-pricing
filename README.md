@@ -2,10 +2,11 @@
 
 Are you looking for a detailed guide on Prepscholar pricing in 2025?
 
-Now, start your SAT preparation with the expert instructors on PrepsScholar as it gives you range of pricing options that you can choose from.
+Now, start your SAT preparation with the expert instructors on PrepsScholar as it gives you a range of pricing options that you can choose from.
 
 Additionally, Prepscholar gives you a risk-free option that guarantees a full refund of your SAT course, we will also talk about the eligibility conditions for this refund program on Prepscholar in this article.
 
+The Best part is you can claim up to 60% off using our latest [PrepScholar coupons](https://github.com/Johniereed/PrepScholar-coupon) and save up to $500/annually.
 Let’s dive in, and understand the Prepscholar pricing structure, How much does it actually cost?
 
 ## How Much Does PrepScholar Cost?
